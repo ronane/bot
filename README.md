@@ -9,3 +9,5 @@ Le problème est que l'adjectif "digital" existe déjà dans la langue français
 ## Exemple
 
 [Voici l'exemple de com' d'une association des acteurs du numérique en Sarthe](https://twitter.com/ObjectifDigital "Hahaha")
+[Ou encore cette agence qui est tombé dedans quand elle était petite](https://twitter.com/Agence_Geoks/status/710097216996839424 "Shit happens")
+[Ce cabinet de conseil aux entreprises](https://twitter.com/Cabinet_FCC/status/710095453325373441 "Il ne doit pas être de très bon conseil")
